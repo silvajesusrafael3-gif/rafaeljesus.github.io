@@ -1,2 +1,2 @@
 # rafaeljesus.github.io
-pagina publica de afialdo magazine luiza via AWIN
+paginas publicadas por afiliado de lojas parceiras via rede  AWIN
